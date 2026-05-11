@@ -1,4 +1,4 @@
-# 
+# Get the ultimate 1Password for macOS integration with professional 1Password for macOS Integration | password-audit + network-monitoring. Featuring password-audit and
 
 
 
